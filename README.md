@@ -2,4 +2,4 @@
 
 微信： Nafek405
 
-[个人网站](www.lyw405.cn)
+[个人网站](http://www.lyw405.cn)
